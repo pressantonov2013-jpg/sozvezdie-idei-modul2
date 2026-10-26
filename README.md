@@ -1,0 +1,1 @@
+# sozvezdie-idei-modul2
